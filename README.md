@@ -35,7 +35,7 @@
 </details>
 
 <!--- links --->
-[website]: https://jerrylohwj.editorx.io/portfolio
+[website]: https://jerrylohwj.wixstudio.com/portfolio2025
 [twitter]: https://twitter.com/JerrySG
 [linkedin]: https://www.linkedin.com/in/jerryloh/
 [behance]: https://www.behance.net/jerryloh2
