@@ -1,6 +1,6 @@
 ### Hi, I'm Jerry! Nice to e-meet you!👋
 
-## I'm a Digital Project Manager that loves everything Marketing and Tech related! 💖
+## I'm a Creative Operation Strategiest that loves everything Marketing and Tech related! 💖
 
 - 👋 AKA @learningtocodewjerry
 - 👀 I’m interested in everything and anything!
